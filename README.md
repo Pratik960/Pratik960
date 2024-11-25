@@ -18,7 +18,7 @@ https://user-images.githubusercontent.com/77715255/226160109-02ca2dd6-2bea-417b-
 
 - 👯 I’m looking to collaborate on **Open Source Projects.**
 
-- 📫 How to reach me **ps6535754@gmail.com**
+- 📫 How to reach me **pratiksolanki055@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
